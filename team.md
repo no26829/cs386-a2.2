@@ -1,4 +1,5 @@
 # Naima Ontiveros
+Hi, I am Naima. I like cats and mexican food. :3
 
 no268@nau.edu
 
