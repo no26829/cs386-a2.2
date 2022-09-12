@@ -6,7 +6,7 @@ no268@nau.edu
 # Veronica Cardenas
 
 vec52@nau.edu
-i'm always in slay mode
+- i'm always in serve mode serve 
 
 # Rain Bigsby
 
