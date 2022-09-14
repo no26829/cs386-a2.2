@@ -17,4 +17,4 @@ My name is Rain I think and I like Bionicle.
 
 rnk33@nau.edu
 
-Regan Kalvelage is a 21 year old student at NAU who loves cats and coffee.
+Regan Kalvelage is a 21 year old student at Northern Arizona University who loves cats and coffee.
