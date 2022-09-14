@@ -11,7 +11,7 @@ vec52@nau.edu
 # Rain Bigsby
 
 rb2422@nau.edu
-
+My name is Rain I think and I like Bionicle.
 
 # Regan Kalvelage
 
